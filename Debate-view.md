@@ -25,7 +25,7 @@ confident and free to do things without needing help from other people.
 new and intended to be different from traditional styles
 
 # angle
-- from the ancient/modern's independenet  
+- from the ancient/modern's independence  
 - from the independent/dependent
 
 # View  
